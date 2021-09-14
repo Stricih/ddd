@@ -1,2 +1,0 @@
-# ddd
-stricih vokh cs
